@@ -1,1 +1,1 @@
-https://xakse337.github.io/rsschool-cv/cv
+https://xakse337.github.io/rsschool-cv/travel
